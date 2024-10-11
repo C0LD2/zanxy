@@ -1,0 +1,1 @@
+safemode.org/gg-safety
